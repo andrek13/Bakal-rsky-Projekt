@@ -1,1 +1,1 @@
-# Bakal-rsky-Projekt
+# Bakalarsky-Projekt
